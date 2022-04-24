@@ -4,7 +4,7 @@ Hi 👋 My name is Fievel Nathan
 I'm like doing my hobby
 -----------------------
 
-Hello I'm still learning every day lmao...
+I'm still learning every day lmao...
 
 *   🌍  I'm based in Earth
 *   ✉️  You can contact me at [farava01@pm.me](mailto:farava01@pm.me)
